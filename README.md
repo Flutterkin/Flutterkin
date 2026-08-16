@@ -12,15 +12,18 @@
 <img width="180" height="24" alt="FlutterBlinkie" src="https://github.com/user-attachments/assets/c335a03e-0f2d-4f35-8217-49c17f648f7e" />
 
 
-$${\color{#ff99ea}Flutter}$$
-$${\color{#ff99ea}Or}$$
-$${\color{#ff99ea}Sugar}$$
-$${\color{#98d9fc}This}$$
-$${\color{#c955ff}This \space is \space blue \space text}$$
-$${\color{#9c30ed}This \space is \space orange \space text}$$
+$${\color{#ff99ea}Flutter\ or\ sugar}$$
 
 
-<img width="4000" height="770" alt="tumblr_425273405084d3e0f25aedff40377625_8faa9a47_400" src="https://github.com/user-attachments/assets/7794705a-b103-4478-a6a2-73453e1b8b8d" />
+$${\color{#c955ff}7teen\ under\ 13\ DNI}$$
+
+
+$${\color{#98d9fc}Flutter fickin\ and\ blot\ yume!!\ doubles\ int\ freely<3}$$
+
+
+$${\color{#9c30ed}}$$
+
+-------------------------------------------------------------------------------------------------------------------------------
 
 $${\color{#ff99ea}This \space \is \space red \space text}$$
 $${\color{#98d9fc}This \space is \space green \space text}$$
@@ -28,12 +31,11 @@ $${\color{#c955ff}This \space is \space blue \space text}$$
 $${\color{#9c30ed}This \space is \space orange \space text}$$
 
 
-$${\color{#98d9fc}FLutter}$$ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&size=17&duration=2000&pause=880&color=C65BF7&width=435&lines=.+.+.%3F;.+.+.+.+!!!!;!%3F%3F!%3F!%3F.+.+.+.;!!!!!!+.+.+.;.+.+.+.+.;(%EF%BF%A3_%EF%BF%A3%7C%7C%7C)+.+.+.+.;*nodding*" alt="Typing SVG" /></a>
+$${\color{#98d9fc}FLutter}$$ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=600&color=F793DA&width=435&lines=In+half+broken+japanese%2C+;+I+wrote+to+you+%2C;%E6%84%9B%E3%81%97%E3%81%A6%E3%82%8B+oh+%E6%84%9B%E3%81%97%E3%81%A6%E3%82%8B;For+most+of+my+life%2C;I've+thought+not+with+my-;Heart+but+my+brain%2C;%E5%BF%83%E3%82%92%E6%84%9B+%2C+%E3%81%97%E3%81%A6%E3%82%8B+!!+%3C3" alt="Typing SVG" /></a>
 
 
 
 
-$${\color{#47B8F7FF}Gigi}$$ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&size=17&duration=2000&pause=880&color=F71818&width=435&lines=FLutter+!;look+at+this!+~;its+ya+dairy;oh+come+on!+cant+be+THAT+bad.;and+see-+oh..;Oh-+oh+wow+flutter..;Ill+uh..+my+bad.." alt="Typing SVG" /></a>
 
 
 <img width="4000" height="770" alt="tumblr_367385ef55050afd0760533e6cd3f2d1_a86ed877_400" src="https://github.com/user-attachments/assets/e06e0023-2515-4d5a-a005-aa790fadd0c2" />

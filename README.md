@@ -9,6 +9,9 @@
 <img width="96" height="56" alt="tumblr_5672098c814886eadfad344bb299aebb_819ca9f2_100" src="https://github.com/user-attachments/assets/88ee00f6-2e58-4fe5-a6dd-3d237721365a" />
 
 
+<img width="180" height="24" alt="FlutterBlinkie" src="https://github.com/user-attachments/assets/c335a03e-0f2d-4f35-8217-49c17f648f7e" />
+
+
 $${\color{#ff99ea}Flutter}$$
 $${\color{#ff99ea}Or}$$
 $${\color{#ff99ea}Sugar}$$

@@ -26,7 +26,7 @@ $${\color{#9c30ed}Qwel\ supporters\ DNI\ at\ all\ cost.}$$
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-$${\color{#9c30ed}Allways\ intwc\}$$
+$${\color{#9c30ed}I\ allways\ block\ freely}$$
 $${\color{#c955ff}C+H\ freely\ unless\ im\ with\ friends\ or\ my\ name\ says\ otherwise.}$$
 
 

@@ -19,17 +19,16 @@ $${\color{#ff99ea}Flutter\ or\ sugar}$$
 $${\color{#c955ff}7teen\ under\ 13\ DNI}$$
 
 
-$${\color{#98d9fc}Flutter fickin\ and\ blot\ yume!!\ doubles\ int\ freely<3}$$
+$${\color{#98d9fc}Flutter fickin\ doubles\ intwc}$$
 
 
-$${\color{#9c30ed}No\ Dni\ List\ I\ Block\ freely.}$$  
+$${\color{#9c30ed}Qwel\ supporters\ DNI\ at\ all\ cost.}$$  
 
 -------------------------------------------------------------------------------------------------------------------------------
 
-$${\color{#9c30ed}Github\ Is\ still\ a\ wip\ pls\ bare\ with\ me}$$
-$${\color{#c955ff}This \space is \space green \space text}$$
-$${\color{#98d9fc}This \space is \space blue \space text}$$
-$${\color{#ff99ea}This \space is \space orange \space text}$$
+$${\color{#9c30ed}Allways\ intwc\}$$
+$${\color{#c955ff}C+H\ freely\ unless\ im\ with\ friends\ or\ my\ name\ says\ otherwise.}$$
+
 
 
 $${\color{#98d9fc}FLutter}$$ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=600&color=F793DA&width=435&lines=In+half+broken+japanese%2C+;+I+wrote+to+you+%2C;%E6%84%9B%E3%81%97%E3%81%A6%E3%82%8B+oh+%E6%84%9B%E3%81%97%E3%81%A6%E3%82%8B;For+most+of+my+life%2C;I've+thought+not+with+my-;Heart+but+my+brain%2C;%E5%BF%83%E3%82%92%E6%84%9B+%2C+%E3%81%97%E3%81%A6%E3%82%8B+!!+%3C3" alt="Typing SVG" /></a>

@@ -1,6 +1,3 @@
-# testing-something 
-
-
 <img width="4000" height="707" alt="tumblr_f644b39988df2791f9f3db1d92545fe6_422f44a7_400" src="https://github.com/user-attachments/assets/8350eb5e-fc08-40a1-8805-d43ea14c8d9b" />
 
 
@@ -40,4 +37,3 @@ $${\color{#98d9fc}FLutter}$$ <a href="https://git.io/typing-svg"><img src="https
 
 <img width="4000" height="770" alt="tumblr_367385ef55050afd0760533e6cd3f2d1_a86ed877_400" src="https://github.com/user-attachments/assets/e06e0023-2515-4d5a-a005-aa790fadd0c2" />
 
-#TY OOMF FOR HELP !!!!

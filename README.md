@@ -10,15 +10,9 @@
 <img width="180" height="24" alt="FlutterBlinkie" src="https://github.com/user-attachments/assets/c335a03e-0f2d-4f35-8217-49c17f648f7e" />
 
 
-$${\color{#ff99ea}Flutter\ or\ sugar}$$
-
-
-$${\color{#c955ff}7teen\ under\ 13\ DNI}$$
-
-
-$${\color{#98d9fc}Flutter fickin\ doubles\ intwc}$$
-
-
+$${\color{#98d9fc}Flutter\ or\ sugar}$$
+$${\color{#ff99ea}7teen\ under\ 13\ DNI}$$ 
+$${\color{#c955ff}Flutter fickin\ doubles\ intwc}$$ 
 $${\color{#9c30ed}Qwel\ supporters\ DNI\ at\ all\ cost.}$$  
 
 -------------------------------------------------------------------------------------------------------------------------------
